@@ -15,3 +15,6 @@ Steven Edit
 
 %%%%%%%%%%%%%%%% SILVA %%%%%%%%%%%%%%%%%%%%%%%
 considerada como una rama de la física y como una especialización de la ingeniería
+
+%%%%%%%Dario Apart %%%%%%
+Si tú sabes lo que vales, ve y consigue lo que mereces
